@@ -6,12 +6,12 @@
 
 
 
-🥰  Soltero y cotizado JAJA
+🥰   Disponible 24hrs para Programar
 
  ⚽ Preguntame sobre : el futbol
 
 📫 Contactos : efraintarija27@gmail.com
 
-😎 Pronombres : zelaya xd
+😎 Pronombres : zelaya 
 
-🙈 Dato curioso : Soy muy bueno hackeado tu corazon
+🙈 Dato curioso : Soy muy bueno hackeando tu corazón
